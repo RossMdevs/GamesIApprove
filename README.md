@@ -1,4 +1,4 @@
-![Funny, this image broke](https://content.halocdn.com/media/Default/games/Halo-2/media/h2_004-39798a436eba4f77bf17cf998b49e635.jpg)
+![HALO 2, New Mombasa](https://vignette.wikia.nocookie.net/halo/images/a/a8/New_Mombasa_halo_2.jpg)
 # GamesIApprove
 Games I love and game!
 
